@@ -5,4 +5,4 @@ to pursue pleasure rationally encounter consequences that are extremely painful.
 desires to obtain pain of itself, because it is pain, but because occasionally circumstances occur in which toil and pain can
 procure him some great pleasure. To take a trivial example, which of us ever undertakes laborious physical exercise, except to
 obtain some advantage from it? But who has any right to find fault with a man who chooses to enjoy a pleasure that has no annoying 
-onsequences, or one who avoids a pain that produces no resultant pleasure?"
+onsequences, or one who avoids a pain that produces na resultant pleasure?"
